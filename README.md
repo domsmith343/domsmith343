@@ -26,4 +26,4 @@
 
 ---
 
-> 🏞️ from LA hikes to late-night commits — always exploring, always building.
+> 🏞️ from sunset hikes to late-night commits — always exploring, always building.
